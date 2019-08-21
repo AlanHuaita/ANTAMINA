@@ -1,0 +1,2 @@
+# ANTAMINA
+proyecto
